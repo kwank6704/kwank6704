@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **C++ programming, Java, event planning, and tips for leading teams effectively! 😊**
 
-- 📫 How to reach me **nattarat.kwan@gmail.com**
+- 📫 How to reach me **nattarat.kwan@gmail.com or www.linkedin.com/in/nattarat-samartkit-778897321**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1YI8H1aByhoUJboS0cqNFIDD9brcofa3m?usp=sharing](https://drive.google.com/drive/folders/1YI8H1aByhoUJboS0cqNFIDD9brcofa3m?usp=sharing)
 
